@@ -1,1 +1,1 @@
-# pinoyradyo.github.io
+https://pinoyradyo.com/
